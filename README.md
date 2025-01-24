@@ -109,6 +109,8 @@ Arquivos disponibilizados para download :
 
 https://drive.google.com/file/d/1AHu0bgXr8NK-x5DDOoNnVNSjbHkCOp2J/view?usp=drive_link
 
+Aplicação em VB6 Metodos http : [https://drive.google.com/file/d/1FX-TkyuIJD1wPhsjBl1_4fXxJ_HnJpEj/view?usp=drive_link](https://shre.ink/b3Zs)
+
 
 BY: CLEVERTON RODRIGUES
 
